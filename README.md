@@ -22,7 +22,7 @@ I also work as an independent professional in Google's Trusted project, providin
 Passionate about electronics, I worked as a DJ and event organizer for over a decade, managing all aspects, including people management, orders, cash flow, crowd control, documentation, and digital and physical media (Photoshop, Premiere, After Effects), as well as handling regulatory matters.
 
 I love participating in social projects, believing that when we have big dreams that create a significant impact, we should share some of our knowledge, money, and time with others. I started by collecting resources at event entrances, founded a DJ school for children, and currently lead a project where we "adopt" a community with over 300 children for Christmas, Children's Day, and Easter. We provide voluntary haircuts and collect gifts, among other activities.
-__
+____
 15年市场工作经验的多面手专业人士，类型3保护，以成功为目标的雷达。
 
 我充当过公司内部创业者，并参与了一个从0到150万的项目，整合了HUB，ERP和销售渠道，此外还创建和推动了超过10,000个广告，教授合作者并与董事会同时管理所有内部管理。
